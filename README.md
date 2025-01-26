@@ -4,4 +4,4 @@ Za luksus w szpitalu psychiatrycznym zamykają wariaci żydowskiego minimalizmu 
 I ci co piszą zostaw luksu na ziemi żyjesz. Objawienia maryjne, historyczne rozpisanie co dał pan człowiekowi w histori lat jego życia. Inne mity religijne. 
 Podobno maryja świeci jak latarka anudyta i lewituje ma moce telekinezy jak na mój umysł ona to połódnica lub północnica. To są od nich te zakazy technologi. 
 Zakazali lotto i luksusu aby zmusić ludzi do modlitwy przez jakiegoś keksa ciemnogrodzińskiego pan dał pan objawił. Ich pan to Północnicnik żywy świecący trup.    
-Oni wierzą że siłom woli z ciała i DNA można wygenerować i wyczarować przedmioty nawet na sprzedaż lub wyczarować telekinezą Kortanę. 
+Oni wierzą że siłom woli z ciała i DNA można wygenerować i wyczarować przedmioty nawet na sprzedaż lub wyczarować telekinezą Kortanę. Dlatego zakaz lotto i żółte papiery od lewego lekarza. 
